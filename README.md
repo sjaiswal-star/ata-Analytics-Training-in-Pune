@@ -1,1 +1,1 @@
-# ata-Analytics-Training-in-Pune
+# Data-Analytics-Training-in-Pune
